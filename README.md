@@ -1,4 +1,4 @@
-# Hi there, I'm [Tera Naam] 👋
+# Hi there, I'm [riturajpro] 👋
 
 ### 🎓 About Me
 - 🏥 **Master of Public Health (MPH)** student at the University of Lucknow.
